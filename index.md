@@ -4,7 +4,7 @@
 
 #### <a href="mailto:nimeshneema@gmail.com"> <img src="https://i.imgur.com/vQc71NU.png" width="24" alt="Email"/></a> <a href="mailto:nimeshneema@gmail.com">Email</a>
 
-#### <a href="https://us04web.zoom.us/j/2169541805?pwd=SlZtSHNsODNWNkkyMUhXTWRzOHQyQT09"> <img src="https://i.imgur.com/eOVVjnn.png" width="24" alt="Zoom Meeting"/></a> <a href="https://us04web.zoom.us/j/2169541805?pwd=SlZtSHNsODNWNkkyMUhXTWRzOHQyQT09">Zoom Meeting</a>
+#### <a href="https://us06web.zoom.us/j/9014730534?pwd=NnpvalJMbk9acnVCdmZ0TERnOFQ2QT09"> <img src="https://i.imgur.com/eOVVjnn.png" width="24" alt="Zoom Meeting"/></a> <a href="https://us06web.zoom.us/j/9014730534?pwd=NnpvalJMbk9acnVCdmZ0TERnOFQ2QT09">Zoom Meeting</a>
 
 #### <a href="http://paypal.me/perspicaciouspvtltd"> <img src="https://i.imgur.com/BlnzMkk.png" width="24" alt="PayPal"/></a> <a href="http://paypal.me/perspicaciouspvtltd">PayPal</a>
 
